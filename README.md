@@ -6,9 +6,9 @@
                   Dx(diagnosed) DID system !
                Socially awkward iwc at all times !
                WE ARE DATING A FEW PPL !
-      @objectsinmirror : ILY MK MY BBG LALALLA RAHRGAHRA !! /P -col.
-    SubspaceLost-J1407b : LULLABYYYY AAAAAALALALLA KISSES YOUU !/R - col.
-             cutiespaces : ILYYY LALALAL !!! /R - a lot of alters ^_^
+      @objectsinmirror : ILY MK MY BBG LALALLA RAHRGAHRA I 
+      LOVE YOU SO SO SO MUCH PLEEEAAASSSEEE!! /P -col.
+
                 
 
                   
