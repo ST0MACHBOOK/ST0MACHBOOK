@@ -5,7 +5,6 @@
           C+H PLEASE anytime unless name says otherwise !
                   Dx(diagnosed) DID system !
                Socially awkward iwc at all times !
-               WE ARE DATING A FEW PPL !
       @objectsinmirror : ILY MK MY BBG LALALLA RAHRGAHRA I 
       LOVE YOU SO SO SO MUCH PLEEEAAASSSEEE!! /P -col.
 
