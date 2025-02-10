@@ -5,8 +5,10 @@
           C+H PLEASE anytime unless name says otherwise !
                   Dx(diagnosed) DID system !
                Socially awkward iwc at all times !
-      @objectsinmirror : ILY MK MY BBG LALALLA RAHRGAHRA I 
-      LOVE YOU SO SO SO MUCH PLEEEAAASSSEEE!! /P -col.
+               I LOVE MY HUSBAND MY MALEWIFE HE'S THE BEST 
+                AAAAAAAAAAAAAAAAAAA HAI MK ILYILYILY 
+          @objectsinmirror : ILY MK MY BBG LALALLA RAHRGAHRA I 
+           LOVE YOU SO SO SO MUCH PLEEEAAASSSEEE!! -col.
 
                 
 
