@@ -1,8 +1,7 @@
-## MY NAME IS ODETTE OR BAMBI ^_^
+## Hai ! int pls ^_^
      ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿
-                  PESTKIT INT PLEASE !!!!
                       ANY PRONOUNS 
-          C+H PLEASE anytime unless name says otherwise !
+          C+H PLEASE anytime pls ! cuddcomf ^_^
                   Dx(diagnosed) DID system !
                Socially awkward iwc at all times !
                I LOVE MY HUSBAND MY MALEWIFE HE'S THE BEST 
@@ -53,7 +52,6 @@
       depends on the alter but can also depend on topic/time of day forgetful
     If i ask you ever "who are you again?" PLEASSE DO NOT TAKE THIS TO OFFENSE !!!!
      i swear you matter to us :( DONT EVER BE AFRAID TO INTERACT WITH US UNLESS WE HAVE ANY DNI'S !!
-    Assume our skins are whoevers fronting unless they say "COS" "COMF" or "c'link" also ,,
      if we are hiding behind oomfs secifically hiding HIDING to where you can BARELY
               see us or cant at all pls dniu oomfs/close 
 
