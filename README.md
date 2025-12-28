@@ -1,5 +1,5 @@
-## HABIT . 
+## @ VICTIM . 
      ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿
-                      ANY PRONOUNS 
-          C+H PLEASE anytime pls ! cuddcomf ^_^
+                      THEY / HE PRONOUNS : Sys host...
+          C+H anytime .
                   Redoing this.. eventually..
